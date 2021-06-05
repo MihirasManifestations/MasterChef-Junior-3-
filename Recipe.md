@@ -1,0 +1,5 @@
+- Cut the bananas and put them in the grinder
+- Add Milk and Sugar
+- Grind them together
+- Pour it into a glass
+- It's ready!
